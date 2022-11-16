@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Thaispessoa recruiter
+- 👀 I’m interested in profissionais tech
+- 🌱 I'm currently learning about development
+- 💞️ I'm looking for full or senior developer profiles
+- 📫 How to reach me: www.linkedin.com/in/thaisspessoa
